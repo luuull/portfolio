@@ -2,4 +2,4 @@
 
 https://luuull.github.io/portfolio
 
-![Captura da Web_29-7-2022_2327_luuull github io](https://user-images.githubusercontent.com/101467080/181866100-583fac17-2484-4ed8-874e-abf1723c442f.jpeg)
+![Screenshot_1](https://user-images.githubusercontent.com/101467080/181866272-ca399886-4937-444d-8e70-4dd264a5ee0b.png)
