@@ -2,4 +2,5 @@
 
 https://luuull.github.io/portfolio
 
-![Screenshot_1](https://user-images.githubusercontent.com/101467080/181866272-ca399886-4937-444d-8e70-4dd264a5ee0b.png)
+![Screenshot_2](https://user-images.githubusercontent.com/101467080/182623678-77cd8be3-da2a-4214-9c8f-e5837e613faa.png)
+
